@@ -1,3 +1,5 @@
+![Beige Modern Elegant Personal LinkedIn Banner](https://github.com/SHREOT/SHREOT/assets/136191807/11947a25-4fac-4e3e-802c-6c18d8a73a7d)
+
 <h1 align="center">Hi 👋, I'm Shreyas Sot</h1>
 <h3 align="center">A passionate frontend developer from India</h3>
 
