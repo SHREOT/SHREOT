@@ -1,2 +1,2 @@
-- 📫 How to reach me **shreyassot2002@gmail.com**
+- 📫 How to reach me **shreyaswork2019@gmail.com**
 
